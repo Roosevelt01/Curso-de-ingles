@@ -1,2 +1,3 @@
 # Curso-de-ingles
-https://github.com/Roosevelt01/Curso-de-ingles/raw/main/Curso%20de%20Ingl%C3%A9s%20(2).pdf
+
+[Curso de Inglés (2).pdf](https://github.com/user-attachments/files/22917859/Curso.de.Ingles.2.pdf)
